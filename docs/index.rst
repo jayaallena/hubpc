@@ -1,5 +1,3 @@
-.. container:: boxed
-
    How to Reach PC Matic Customer Support | Get Help Customer Care
    ================================================================
 
